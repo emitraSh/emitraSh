@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @emitraSh
+- 💞️ I love coding and learning more
+- 📫 You can reach me by my mail!
